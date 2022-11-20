@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Makima-DevBegginer
+- 👀 I’m interested in coding
+- 🌱 I’m not currently learning something 
+- 💞️ I’m not looking to collaborate 
+- 📫 How to reach me fanxyuri.discord@gmail.com
