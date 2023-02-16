@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Makima-DevBegginer
+- 👋 Hi, I’m @Megumiiin
 - 👀 I’m interested in coding
 - 🌱 I’m not currently learning something 
 - 💞️ I’m not looking to collaborate 
