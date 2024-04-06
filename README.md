@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Megumiiin
+- 👋 Hi, I’m @bambusem
 - 👀 I’m interested in coding
 - 🌱 I’m not currently learning something 
 - 💞️ I’m not looking to collaborate 
